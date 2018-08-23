@@ -1,1 +1,1 @@
-A short introduction about your team
+In the TRON ecology, DApp has always played an important role in the ecological development. DAPPHOUSE is committed to researching and developing decentralized applications, and is providing a good solution and display platform for the operation of the applications.
